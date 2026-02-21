@@ -1,17 +1,15 @@
-## hello !!
-apologies if we come off as rude or insensitive at any time, we usually dont think before saying stuff. a lot of us have bad attachment issues and a tendency to overthink quite a bit,,,
+## basic info
 
+hello!! im comet, or ivan, or scraps. i am a fictionkin of ivan and scraps and they are literally me irl ok? i really enjoy bad things it brings me so very much comfort ok?
 
-pleasepleasePLEASE be patient at times!! were sometimes very slow to process stuff or have no clue whats going on occasionally
+***
 
+system host!! please do NOT act odd around any non-host (me) alters. they deserve just as much respect as everyone else, especially our littles. they only front around people they trust to not break their boundaries--those being no cursing or any sexual jokes. this includes those targeted at them or just those in general.
 
-if any of us do anything to bug you, please please please just tell us instead of getting all upset and angry at someone who probably didnt mean it
+***
 
+on the topic of boundaries, i would highly appreciate NO mentions of suicide/intense gore. i am fine with it in games, however if you deliberately find it and send it to me, you might end up blocked. sorry not sorry. i also would PREFER no ivandrew content, as the ship makes me feel poorly. if you ship it, great! i will not be tolerating your forcing me to talk about/seeing the ship though.
 
-none of us mind if source of any of our fictives interact (minus a few, if "FANDOM DNI" is there its a good chance they dont want source to interact either) ! just please be wary if they have a sepcific dni, ie "dni slingshot" or "four dniuf"
+***
 
-
-please check other repositories ^_^ theres a lot of info there!!
-
-
-if we tell you to dni/not do/say something and you keep doing it, dont be surprised if you get called annoying or we're mean to you! boundaries are set for a reason. we dont have many, but the ones we have are for our comfort! if they make you uncomfortable, leave/block us. its very simple to understand!
+i only tolerate c+h (cuddles+hiding) from friends. if there is any form of dni--excpepting dniuf--it will only be tolerated from close friends, namely those @'d in my bio!!
