@@ -13,3 +13,7 @@ on the topic of boundaries, i would highly appreciate NO mentions of suicide / s
 ***
 
 i only tolerate c+h ( cuddles+hiding ) from friends ( unless stated in name ! ) if there is any form of dni--excpepting dniuf--it will only be tolerated from close friends, namely those @'d in my bio!!
+
+***
+
+layout for this inspired by pierrot-yume hi zanka
