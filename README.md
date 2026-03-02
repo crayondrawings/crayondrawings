@@ -18,4 +18,4 @@ i only tolerate c+h ( cuddles+hiding ) from friends ( unless stated in name ! ) 
 
 ***
 
-layout for this inspired by pierrot-yume hi zanka
+layout for this inspired by ollie hi ollie
