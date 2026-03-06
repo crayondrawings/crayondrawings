@@ -1,3 +1,8 @@
+<img width="2300" height="1500" alt="image" src="https://github.com/user-attachments/assets/8d09229f-a837-4acb-a68c-2f0d9d0ce14b" />
+
+
+
+
 ## basic info
 
 hello !! im comet, or ivan, or scraps. i am a fictionkin of ivan and scraps and they are literally me irl ok ? i really enjoy bad things it brings me so very much comfort ok ?
