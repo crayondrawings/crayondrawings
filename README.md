@@ -21,6 +21,10 @@ also dni if you like the 2026 animal farm movie youre wwwwweeeeiiirdddddd -skitt
 
 ***
 
+as stated, SYSTEM. this means we have a disorder caused from TRAUMA. we might not respond properly to most all situations, dont take it the wrong way. we are, collectivey, horrible at wording things and properly expressing them, mainly emotions. if we act uninterested in a serious topic, we are probably avoiding getting hurt again. -lampert
+
+***
+
 i only tolerate c+h ( cuddles+hiding ) from friends ( unless stated in name ! ) if there is any form of dni--excpepting dniuf--it will only be tolerated from close friends, namely those @'d in my bio!!
 
 ***
