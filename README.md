@@ -9,6 +9,10 @@ hello !! im comet, or ivan, or scraps. i am a fictionkin of ivan and scraps and 
 
 ***
 
+fandom dni doesnt apply to FRIENDS see that _FRIENDS_
+
+***
+
 system host !! please do NOT act odd around any non-host alters. they deserve just as much respect as everyone else, especially our littles. they only front around people they trust to not break their boundaries--those being no cursing or any sexual jokes. this includes those targeted at them or just those in general.
 
 ***
