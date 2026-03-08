@@ -11,6 +11,8 @@ hello !! im comet, or ivan, or scraps. i am a fictionkin of ivan and scraps and 
 
 fandom dni doesnt apply to FRIENDS see that _FRIENDS_
 
+sometimes we might not respond to stuff or seem really distant for some days or weeks it usually happens when we have alters who were dormant become active again and not want to talk or if a frequent fronter gets upset
+
 ***
 
 system host !! please do NOT act odd around any non-host alters. they deserve just as much respect as everyone else, especially our littles. they only front around people they trust to not break their boundaries--those being no cursing or any sexual jokes. this includes those targeted at them or just those in general.
