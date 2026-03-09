@@ -9,9 +9,13 @@ hello !! im comet, or ivan, or scraps. i am a fictionkin of ivan and scraps and 
 
 ***
 
+## byi
+
 fandom dni doesnt apply to FRIENDS see that _FRIENDS_
 
 sometimes we might not respond to stuff or seem really distant for some days or weeks it usually happens when we have alters who were dormant become active again and not want to talk or if a frequent fronter gets upset
+
+generally we can be EXTREMELY mean without meaning to and im really sorry if that happens to you its not because we dont like you ( or maybe we dont like you -- this is implied heavily for strangers , we simply unfriend / block if we dont like a friend )
 
 ***
 
