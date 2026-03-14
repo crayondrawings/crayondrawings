@@ -17,7 +17,7 @@ sometimes we might not respond to stuff or seem really distant for some days or 
 
 generally we can be EXTREMELY mean without meaning to and im really sorry if that happens to you its not because we dont like you
 
-
+we can not remember most of our trauma , as the one holding most of it is dormant and has been dormant for years. we wont talk about it , dont try to get us to explain ourselves . /tar
 
 ***
 
