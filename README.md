@@ -19,7 +19,16 @@
 ## FANDOMS
 this will change a lot, and there are more! (if you like these hmu /nf)
 - bad things
+- grace
 - regretavator
 - dandys world
 - wonderend0
 - studio investigrave
+
+***
+
+## ETC
+
+- i follow all my friends :) i have a spam follow account too @clownsaroundtown and idm spam followers
+- lesbian , agender , asexual
+- i like fishies
