@@ -13,6 +13,8 @@
 - please do not bring up suicide or self harm around me. they make me very uncomfortable. this includes jokes and being serious.
 - i do not mind nicknames, i infact encourage them! however, if they are meant in a romantic way, i discourage them. i have a partner and theyre super cool and i love her sososomuch and they dont have github but shoutout collie
 - i am REALLY bad at understanding the tone of things, both in person and over text and would prefer tonetags. however, if you dont like them to the point they ruin your day, i can try to understand without them
+- if we are friends, i dont mind you cuddling/hiding behind me at any time ^_^ if stated in name, then feel free to do it even if i dont know you :)
+- feel free to ask for socials if you want them
 
 ***
 
