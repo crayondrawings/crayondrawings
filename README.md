@@ -15,6 +15,7 @@
 - i am REALLY bad at understanding the tone of things, both in person and over text and would prefer tonetags. however, if you dont like them to the point they ruin your day, i can try to understand without them
 - if we are friends, i dont mind you cuddling/hiding behind me at any time ^_^ if stated in name, then feel free to do it even if i dont know you :)
 - feel free to ask for socials if you want them
+- REALLY bad at calling people out if it happens then you probably really pmo sorry
 
 ***
 
