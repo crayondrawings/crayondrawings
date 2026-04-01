@@ -7,7 +7,7 @@
 
 # BYI . . .
 ### pref names :
-ivan , mantis , any ( platonic ) nickname
+ivan , mantis , bassie , any ( platonic ) nickname
 ***
 ### info :
 taken by my LOVELY partner collie :D ( they do not have a github , but she does have ponytown and is rather inactive on it )
