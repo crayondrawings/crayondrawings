@@ -1,3 +1,6 @@
+<img width="2500" height="1292" alt="image" src="https://github.com/user-attachments/assets/2d875987-3a24-4e90-b968-cf23b1149e94" />
+
+
 # BYI . . .
 ### pref names :
 ivan , mantis , any ( platonic ) nickname
