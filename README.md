@@ -1,37 +1,27 @@
-<img width="2500" height="893" alt="image" src="https://github.com/user-attachments/assets/2b98dca7-5ef8-4131-a0ab-fb6c21b63e06" />
-
-
-## BASIC INFO
-- fictionkin of scraps + ivan, i dont believe in doubles but block me if it makes you uncomfortable at all
-- #1 bad things enthusiast
-- i have alexithymia, so i might be extremely insensitive and then start crying over the smallest thing
-- system host, youll probably see me the most unless something happens
-
+# BYI . . .
+### pref names :
+ivan , mantis , any ( platonic ) nickname
 ***
+### info :
+taken by my LOVELY partner collie :D ( they do not have a github , but she does have ponytown and is rather inactive on it )
 
-## BOUNDARIES
-- please do not bring up suicide or self harm around me. they make me very uncomfortable. this includes jokes and being serious.
-- i do not mind nicknames, i infact encourage them! however, if they are meant in a romantic way, i discourage them. i have a partner and theyre super cool and i love her sososomuch and they dont have github but shoutout collie
-- i am REALLY bad at understanding the tone of things, both in person and over text and would prefer tonetags. however, if you dont like them to the point they ruin your day, i can try to understand without them
-- if we are friends, i dont mind you cuddling/hiding behind me at any time ^_^ if stated in name, then feel free to do it even if i dont know you :)
-- feel free to ask for socials if you want them
-- REALLY bad at calling people out if it happens then you probably really pmo sorry
+alexithymia , misophonia
 
+lesbian , agender , and asexual
 ***
-
-## FANDOMS
-this will change a lot, and there are more! (if you like these hmu /nf)
-- bad things
+### fandoms :
+- bad things ( i am the no.1 fan trust me i love bad things )
 - grace
 - regretavator
-- dandys world
 - wonderend0
 - studio investigrave
-
 ***
+### boundaries :
+IWEC :
+- exfriends ( IF unblocked you can interact )
 
-## ETC
-
-- i follow all my friends :) i have a spam follow account too @clownsaroundtown and idm spam followers
-- lesbian , agender , asexual
-- i like fishies
+DNI :
+- darkshippers
+- bigots
+- still blocked exfriends
+- anti - ( furries , therians , etc etc )
