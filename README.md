@@ -20,13 +20,17 @@ lesbian , agender , and asexual
 - regretavator
 - wonderend0
 - studio investigrave
+- a whole lot of other fandoms too
 ***
 ### boundaries :
-IWEC :
-- exfriends ( IF unblocked you can interact )
+
+IWEC:
+- " ragebaiters " ( unless its milk before cereal or stuff like that ! )
 
 DNI :
 - darkshippers
 - bigots
-- still blocked exfriends
-- anti - ( furries , therians , etc etc )
+- exfriends
+- anti - ( furries , therians , etc etc , anything NON harmful )
+
+please do NOT bring up heavy topics such as suicide or sh around me, they make me very uncomfortable . if they are in a game you are reccomending , please mention that they are there , but that is ONLY if neccesary
