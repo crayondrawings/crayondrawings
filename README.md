@@ -25,7 +25,7 @@ lesbian , agender , and asexual
 - a whole lot of other fandoms too
 ***
 ### boundaries :
-IWEC:
+IWEC :
 - " ragebaiters " ( unless its milk before cereal or stuff like that ! )
 
 DNI :
@@ -37,3 +37,18 @@ DNI :
 ETC:
 - please do NOT bring up heavy topics such as suicide or sh around me, they make me very uncomfortable . if they are in a game you are reccomending , please mention that they are there , but that is ONLY if neccesary
 - friends are allowed to c*h at any time ! no matter of there is a dni or not :)
+***
+# FREQ FRONTERS INTROS . . .
+### lampert
+- he-it-light-lamp
+- trauma holder
+- demiromantic, asexual, genderfaun
+- please int w caution at most times thank you
+***
+### c00l
+- he.it
+- protector and anger holder
+- aroace and trans
+- interact with extreme caution unless friend
+***
+other headmates also front frequently too but these are just the main ones online :)
