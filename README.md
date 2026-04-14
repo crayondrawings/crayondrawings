@@ -7,10 +7,10 @@
 
 # BYI . . .
 ### pref names :
-d3rlord3 , derek , ivan , mantis , bassie , any ( platonic ) nickname ( probably missing some but theres a lot of characters i kin so theyre just all here,, yes any skins based off these characters are all me 😀 not someone else ok sometimes i just dont specify on the skin )
+d3rlord3 , derek , ivan , mantis , bassie , any ( platonic ) nickname ( probably missing some but theres a lot of characters i kin so theyre just all here,, ok )
 ***
 ### info :
-taken by my LOVELY partner collie :D ( they do not have a github , but she does have ponytown and is rather inactive on it )
+taken by my LOVELY partner collie :D ( they do not have a github , but she does have ponytown and is rather inactive on it
 
 alexithymia , misophonia
 
@@ -18,7 +18,7 @@ lesbian , agender , and asexual
 ***
 ### fandoms :
 - bad things ( i am the no.1 fan trust me i love bad things )
-- grace
+- grace ( I DONT SUPPORT SIMON )
 - regretavator
 - wonderend0
 - studio investigrave
