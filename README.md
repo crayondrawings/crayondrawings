@@ -7,7 +7,7 @@
 
 # BYI . . .
 ### pref names :
-ivan , mantis , bassie , any ( platonic ) nickname
+d3rlord3 , derek , ivan , mantis , bassie , any ( platonic ) nickname ( probably missing some but theres a lot of characters i kin so theyre just all here,, yes any skins based off these characters are all me 😀 not someone else ok sometimes i just dont specify on the skin )
 ***
 ### info :
 taken by my LOVELY partner collie :D ( they do not have a github , but she does have ponytown and is rather inactive on it )
